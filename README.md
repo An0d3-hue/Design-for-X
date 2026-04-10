@@ -50,6 +50,7 @@ And I have participated in researches of materials and 3D printing
 ![WhatsApp Image 2025-08-03 at 12 07 48](https://github.com/user-attachments/assets/ce8322e0-37b1-4d05-a400-942fd377a89f)
 
 Design for start-up
+
 <img width="856" height="808" alt="Screenshot 2025-06-21 232930" src="https://github.com/user-attachments/assets/898bc5bd-3e78-4e59-9202-07fa93f27f2b" />
 <img width="931" height="750" alt="Screenshot 2025-06-21 232406" src="https://github.com/user-attachments/assets/532d0e2a-0f35-4fcb-b0ff-ebf2e85f8d66" />
 
