@@ -1,4 +1,4 @@
-# Design-for-X
+![83268d97-c037-41a2-a39f-6e9c4e7a5304](https://github.com/user-attachments/assets/e0dd8d0b-a761-44d9-9fe0-46150bb2f0e9)# Design-for-X
 Designs and workshops
 
 Link to my Makerworld : https://makerworld.com/zh/@Funny_man/upload
@@ -25,13 +25,22 @@ Not just hosting workshops, I have also created my own designs
 <img width="1079" height="927" alt="Screenshot 2026-02-20 211417" src="https://github.com/user-attachments/assets/9824fdef-f6b6-4141-b9ca-067149f6f6e9" />
 <img width="1653" height="924" alt="Screenshot 2025-10-10 105029" src="https://github.com/user-attachments/assets/8dd56ee4-45d7-403b-a9d1-5ab134387765" />
 <img width="1189" height="1021" alt="Screenshot 2025-12-26 022037" src="https://github.com/user-attachments/assets/1c4275fd-94fd-4fa8-a4f3-16dbaaa56dbf" />
+![P_20250423_142018_vHDR_Auto_1_1](https://github.com/user-attachments/assets/a28184b7-e00a-4d25-bdad-ef2307ef4432)
+<img width="2560" height="1249" alt="pandaclear" src="https://github.com/user-attachments/assets/5865c25b-1935-4123-b7af-a72db8ccd750" />
+![83268d97-c037-41a2-a39f-6e9c4e7a5304](https://github.com/user-attachments/assets/d08437e8-be21-4426-8d78-678404649420)
 
 
 I have created my designs with Generative CAD for exibits, and made tables with the same design skill for showcase at PolyU industrial center.
 ![WhatsApp Image 2025-08-18 at 10 50 04 (1)](https://github.com/user-attachments/assets/1a2881b5-836a-46fa-8d77-4d4d852269aa)
-<img width="244" height="325" alt="圖片5" src="https://github.com/user-attachments/assets/d36bb4a9-c321-4c16-9a17-71a45d4ff84e" />
+![WhatsApp Image 2025-08-03 at 12 07 48 (1)](https://github.com/user-attachments/assets/027ba361-084b-478b-9d02-2bcbb18945bd)
+
+
 
 And I have participated in researches of materials and 3D printing
-![圖片10](https://github.com/user-attachments/assets/b5a2593f-2927-4943-8085-2b70471fcd48)
-![圖片9](https://github.com/user-attachments/assets/01f89833-8b21-425c-ae62-3d40b3e4f42c)
+![WhatsApp Image 2025-08-03 at 12 07 48 (2)](https://github.com/user-attachments/assets/728805d9-9893-462c-98f9-954b2e031c85)
+![WhatsApp Image 2025-08-03 at 12 08 36](https://github.com/user-attachments/assets/4c0b57ad-392d-42e8-8821-76ec1f81ffed)
+![WhatsApp Image 2025-08-03 at 12 07 49](https://github.com/user-attachments/assets/ad5fef5d-30a9-4b72-aa63-37bee49ea9e5)
+![WhatsApp Image 2025-08-03 at 12 07 49 (1)](https://github.com/user-attachments/assets/3f17a76d-228e-4a6d-8ff3-3fed5fa43440)
+![WhatsApp Image 2025-08-03 at 12 07 48](https://github.com/user-attachments/assets/ce8322e0-37b1-4d05-a400-942fd377a89f)
+
 
