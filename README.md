@@ -13,6 +13,10 @@ Other workshops are under supervision of PolyU Industrial Center, I have been a 
 ![WhatsApp Image 2025-09-23 at 13 18 53](https://github.com/user-attachments/assets/db0c2342-145f-46e7-8340-9d5db907d086)
 ![WhatsApp Image 2025-09-23 at 13 18 52](https://github.com/user-attachments/assets/c2522806-cc74-4ce5-b8d3-73dbc16d3f10)
 ![WhatsApp Image 2025-03-19 at 12 29 53](https://github.com/user-attachments/assets/10df5595-eb92-43d7-a1be-91ccd7381f28)
+<img width="1283" height="1274" alt="Screenshot 2025-08-16 005311" src="https://github.com/user-attachments/assets/0fbedb09-eebb-445f-86b8-d84935cdbc2c" />
+<img width="935" height="1096" alt="Screenshot 2025-08-16 003854" src="https://github.com/user-attachments/assets/948ecfdf-4de6-4869-b2d5-b23dd9fa7bef" />
+<img width="1033" height="819" alt="Screenshot 2025-08-16 004029" src="https://github.com/user-attachments/assets/1e5f8b1e-fa69-4067-a5f6-db9cb27c1aa3" />
+
 
 Not just hosting workshops, I have also created my own designs 
 <img width="1048" height="1000" alt="image-2026-01-17-210931" src="https://github.com/user-attachments/assets/5999b96f-0abd-4f34-963c-7ebe2650eab8" />
