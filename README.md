@@ -25,15 +25,9 @@ Not just hosting workshops, I have also created my own designs
 
 I have created my designs with Generative CAD for exibits, and made tables with the same design skill for showcase at PolyU industrial center.
 ![WhatsApp Image 2025-08-18 at 10 50 04 (1)](https://github.com/user-attachments/assets/1a2881b5-836a-46fa-8d77-4d4d852269aa)
-<img width="380" height="250" alt="圖片1" src="https://github.com/user-attachments/assets/e7fe1547-0d04-42f7-8cf3-3ecf32eeeaf7" />
-<img width="484" height="723" alt="圖片3" src="https://github.com/user-attachments/assets/8e05742c-49de-45bd-b931-6ad908e72445" />
-<img width="207" height="247" alt="圖片2" src="https://github.com/user-attachments/assets/550eb778-5877-4e6e-9480-9d3cfba3699d" />
-![圖片6](https://github.com/user-attachments/assets/d115b968-7b30-44d3-a277-27847a8e9317)
-![Uploading Screenshot 2025-12-26 022037.png…]()
+<img width="244" height="325" alt="圖片5" src="https://github.com/user-attachments/assets/d36bb4a9-c321-4c16-9a17-71a45d4ff84e" />
 
 And I have participated in researches of materials and 3D printing
-
-<img width="193" height="105" alt="圖片11" src="https://github.com/user-attachments/assets/c13cb3c4-95b2-4774-aaa4-b6fad160054a" />
-![圖片10](https://github.com/user-attachments/assets/25e1e71e-e26b-4462-8d92-6133b2bfb2e2)
-![圖片9](https://github.com/user-attachments/assets/112530c6-34a2-4cf1-93b8-3126449e5613)
+![圖片10](https://github.com/user-attachments/assets/b5a2593f-2927-4943-8085-2b70471fcd48)
+![圖片9](https://github.com/user-attachments/assets/01f89833-8b21-425c-ae62-3d40b3e4f42c)
 
