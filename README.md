@@ -28,11 +28,17 @@ Not just hosting workshops, I have also created my own designs
 ![P_20250423_142018_vHDR_Auto_1_1](https://github.com/user-attachments/assets/a28184b7-e00a-4d25-bdad-ef2307ef4432)
 <img width="2560" height="1249" alt="pandaclear" src="https://github.com/user-attachments/assets/5865c25b-1935-4123-b7af-a72db8ccd750" />
 ![83268d97-c037-41a2-a39f-6e9c4e7a5304](https://github.com/user-attachments/assets/e0dd8d0b-a761-44d9-9fe0-46150bb2f0e9)
-
+![WhatsApp Image 2026-02-12 at 11 41 21 (1)](https://github.com/user-attachments/assets/bdf22c99-8283-4013-91de-f448a6d7466d)
+![WhatsApp Image 2026-03-01 at 14 51 13](https://github.com/user-attachments/assets/55501dba-b812-4346-baf5-9215da79e9b5)
+<img width="1020" height="1098" alt="Screenshot 2025-08-18 104308" src="https://github.com/user-attachments/assets/68a2bf12-ffa0-4ba5-9450-a913a7d0c906" />
+More designs in my Makerworld : https://makerworld.com/zh/@Funny_man/upload
 
 I have created my designs with Generative CAD for exibits, and made tables with the same design skill for showcase at PolyU industrial center.
 ![WhatsApp Image 2025-08-18 at 10 50 04 (1)](https://github.com/user-attachments/assets/1a2881b5-836a-46fa-8d77-4d4d852269aa)
 ![WhatsApp Image 2025-08-03 at 12 07 48 (1)](https://github.com/user-attachments/assets/027ba361-084b-478b-9d02-2bcbb18945bd)
+<img width="1006" height="1009" alt="Screenshot 2025-06-21 234244" src="https://github.com/user-attachments/assets/f26d36a6-ee07-4bba-84df-91935ccd4d02" />
+<img width="936" height="902" alt="Screenshot 2025-06-21 231338" src="https://github.com/user-attachments/assets/a281f179-192a-4b5c-912f-f10e7268393b" />
+![WhatsApp Image 2025-12-19 at 15 17 11](https://github.com/user-attachments/assets/73ff401d-761c-494d-8b6c-4721c11d4874)
 
 
 
@@ -43,4 +49,7 @@ And I have participated in researches of materials and 3D printing
 ![WhatsApp Image 2025-08-03 at 12 07 49 (1)](https://github.com/user-attachments/assets/3f17a76d-228e-4a6d-8ff3-3fed5fa43440)
 ![WhatsApp Image 2025-08-03 at 12 07 48](https://github.com/user-attachments/assets/ce8322e0-37b1-4d05-a400-942fd377a89f)
 
+Design for start-up
+<img width="856" height="808" alt="Screenshot 2025-06-21 232930" src="https://github.com/user-attachments/assets/898bc5bd-3e78-4e59-9202-07fa93f27f2b" />
+<img width="931" height="750" alt="Screenshot 2025-06-21 232406" src="https://github.com/user-attachments/assets/532d0e2a-0f35-4fcb-b0ff-ebf2e85f8d66" />
 
