@@ -33,6 +33,14 @@ Not just hosting workshops, I have also created my own designs
 <img width="1020" height="1098" alt="Screenshot 2025-08-18 104308" src="https://github.com/user-attachments/assets/68a2bf12-ffa0-4ba5-9450-a913a7d0c906" />
 More designs in my Makerworld : https://makerworld.com/zh/@Funny_man/upload
 
+Blender Design
+<img width="4090" height="2696" alt="render1" src="https://github.com/user-attachments/assets/3886d134-0b91-4980-abd0-f1e9cbfc6f6c" />
+DM for more
+
+KiCad
+<img width="2216" height="1162" alt="Screenshot 2026-04-28 171049" src="https://github.com/user-attachments/assets/77f47638-52df-4dc4-a375-4576ea63b6c2" />
+
+
 I have created my designs with Generative CAD for exibits, and made tables with the same design skill for showcase at PolyU industrial center.
 ![WhatsApp Image 2025-08-18 at 10 50 04 (1)](https://github.com/user-attachments/assets/1a2881b5-836a-46fa-8d77-4d4d852269aa)
 ![WhatsApp Image 2025-08-03 at 12 07 48 (1)](https://github.com/user-attachments/assets/027ba361-084b-478b-9d02-2bcbb18945bd)
