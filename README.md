@@ -31,6 +31,8 @@ Not just hosting workshops, I have also created my own designs
 ![WhatsApp Image 2026-02-12 at 11 41 21 (1)](https://github.com/user-attachments/assets/bdf22c99-8283-4013-91de-f448a6d7466d)
 ![WhatsApp Image 2026-03-01 at 14 51 13](https://github.com/user-attachments/assets/55501dba-b812-4346-baf5-9215da79e9b5)
 <img width="1020" height="1098" alt="Screenshot 2025-08-18 104308" src="https://github.com/user-attachments/assets/68a2bf12-ffa0-4ba5-9450-a913a7d0c906" />
+<img width="2560" height="1504" alt="Screenshot 2025-03-01 120025" src="https://github.com/user-attachments/assets/b5eb22a3-8d55-4c0b-be0c-1be63c6e9ea2" />
+
 More designs in my Makerworld : https://makerworld.com/zh/@Funny_man/upload
 
 Blender Design
@@ -61,4 +63,8 @@ Design for start-up
 
 <img width="856" height="808" alt="Screenshot 2025-06-21 232930" src="https://github.com/user-attachments/assets/898bc5bd-3e78-4e59-9202-07fa93f27f2b" />
 <img width="931" height="750" alt="Screenshot 2025-06-21 232406" src="https://github.com/user-attachments/assets/532d0e2a-0f35-4fcb-b0ff-ebf2e85f8d66" />
+<img width="2560" height="886" alt="Scale_top_3-asixs_Milling_2025-Feb-28_03-02-21PM-000_CustomizedView65809896321_png_alpha" src="https://github.com/user-attachments/assets/df1212b9-a450-4aa5-8f1a-20925b43bcb4" />
+<img width="732" height="793" alt="Screenshot 2025-06-26 002608" src="https://github.com/user-attachments/assets/31538af5-c618-4b20-be25-b50ee4476315" />
+<img width="1074" height="1011" alt="Screenshot 2025-06-26 000626" src="https://github.com/user-attachments/assets/1a3f5e5e-c46b-4a20-9348-7eaea1ee3785" />
+![Uploading Screenshot 2025-03-01 120025.png…]()
 
