@@ -58,6 +58,7 @@ And I have participated in researches of materials and 3D printing
 ![WhatsApp Image 2025-08-03 at 12 07 49](https://github.com/user-attachments/assets/ad5fef5d-30a9-4b72-aa63-37bee49ea9e5)
 ![WhatsApp Image 2025-08-03 at 12 07 49 (1)](https://github.com/user-attachments/assets/3f17a76d-228e-4a6d-8ff3-3fed5fa43440)
 ![WhatsApp Image 2025-08-03 at 12 07 48](https://github.com/user-attachments/assets/ce8322e0-37b1-4d05-a400-942fd377a89f)
+https://www.polyu.edu.hk/media/media-releases/2025/0716_polyu-and-soy-sky-farmtech-establish-joint-laboratory/
 
 Design for start-up
 
